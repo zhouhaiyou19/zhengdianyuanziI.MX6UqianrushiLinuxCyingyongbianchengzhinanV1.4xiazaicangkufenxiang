@@ -1,0 +1,1 @@
+# zhengdianyuanziI.MX6UqianrushiLinuxCyingyongbianchengzhinanV1.4xiazaicangkufenxiang
